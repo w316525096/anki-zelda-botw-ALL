@@ -1,0 +1,1 @@
+# anki-zelda-botw-ALL
